@@ -1,4 +1,4 @@
-
+Experience easter tap simulator like never before with easter tap simulator Script updated, the #1 Script. Includes invisibility and auto-sell for
 
 
 
